@@ -9,7 +9,7 @@
 ${\textsf{\color{#B52D2D} love. }}$⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ${\textsf{\color{#B52D2D} brain. }}$⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ${\textsf{\color{#B52D2D} heart. }}$⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ${\textsf{\color{#B52D2D} control. }}$
 
 
-my [facebook](https://www.facebook.com/share/p/1EAdkG1X3y/)⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ my [spotify](https://open.spotify.com/user/31xdjmmp4ewxf5yllghira32nyp4?si=O5owtz_4SpO5ChpoXUj9vA) ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ my atabook(wip)
+my [facebook](https://www.facebook.com/share/p/1EAdkG1X3y/)⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ my [spotify](https://open.spotify.com/user/31xdjmmp4ewxf5yllghira32nyp4?si=O5owtz_4SpO5ChpoXUj9vA) ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ my [atabook](https://jingrenrenjingmeanforever.atabook.org)
 
 
 <img width="1200" height="80" alt="image" src="https://github.com/user-attachments/assets/f7591592-28f8-4fee-9fe9-acdf53505e71" />

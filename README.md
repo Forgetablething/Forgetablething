@@ -12,7 +12,7 @@ ${\textsf{\color{#B52D2D} love. }}$⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ${\textsf{\
 my [𝖋𝖆𝖈𝖊𝖇𝖔𝖔𝖐.](https://www.facebook.com/share/p/1EAdkG1X3y/)⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ my [𝖘𝖕𝖔𝖙𝖎𝖋𝖞.](https://open.spotify.com/user/31xdjmmp4ewxf5yllghira32nyp4?si=O5owtz_4SpO5ChpoXUj9vA) ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ my [𝖆𝖙𝖆𝖇𝖔𝖔𝖐.](https://jingrenrenjingmeanforever.atabook.org)
 
 
-${\textsf{\color{#B52D2D} Friendly reminds: }}$ I don't ship Renheng/XingFeng at all, I don't hate that ship. But it's ok to use Dan Feng or Dan Heng to sit with me when I use Ren/Ying Xing. But please... don't talk to me about Renheng/XingFeng. </3. 
+${\textsf{\color{#B52D2D} Friendly reminds: }}$ I don't ship Renheng/XingFeng at all, I don't hate that ship, I just don't like tho... But it's ok to use Dan Feng or Dan Heng to sit with me when I use Ren/Ying Xing. But please... don't talk to me about Renheng/XingFeng. </3. 
 
 
 <img width="1200" height="80" alt="image" src="https://github.com/user-attachments/assets/f7591592-28f8-4fee-9fe9-acdf53505e71" />
